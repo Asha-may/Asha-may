@@ -1,0 +1,3 @@
+- 👋 Hi
+- Please don't talk to me
+- 💞️ Thanks!
